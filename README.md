@@ -1,1 +1,0 @@
-# krutika1
